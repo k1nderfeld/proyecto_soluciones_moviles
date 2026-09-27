@@ -1,1 +1,0 @@
-# proyecto_soluciones_moviles
